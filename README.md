@@ -1,1 +1,0 @@
-# wednesday-self-compiled-project
